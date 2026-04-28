@@ -1,1 +1,1 @@
-# Daily-Logs
+YOLO BADGE # Daily-Logs
